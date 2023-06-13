@@ -1,0 +1,1 @@
+It is  more important to to make sure you understand fully than rushing into finishing whereas you dont understand.That could ruin things for you in the long run
